@@ -7,3 +7,5 @@
 * i told myself i wouldnt wear any of my penn/philly clothes to my interviews i had in 2017 and onward, nothing, all new things
 
 * some things i have from hs or rutgers 😇 and im like ohhh yeah my mom got me this, all i did was point to it at the store and shes like "okayyyy only if u wear it" and it was like $200 or more, i still have it and i still wear it. actually i have this black skirt with gold sequin horizontal thick stripes that my mom got for me in hs, we both love that skirt still, i'll pull it out when we go to dinner where it would look nice
+
+i got the things, i just have to fix my curtain rod later or this week, my mom gave me a new one a while ago, but there was a big thing on my to-do list that i did do yesterday, sooo i got the things
