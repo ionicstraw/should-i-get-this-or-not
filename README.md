@@ -11,3 +11,5 @@
 i got the things, i just have to fix my curtain rod later or this week, my mom gave me a new one a while ago, but there was a big thing on my to-do list that i did do yesterday, sooo i got the things
 
 the tights came in the mail today, okk def overpriced haha as expected but i like themm, i got another pair from a diff website by the same french designer that are in gold but they were a little discounted BUT they're originally $450. i think i just want to work on my app this weekend too, i really want to figure out things, maybe next weekend or next next weekend. gotta get to that cafe early tho bc it gets packed and ppl start moving the furniture around.
+
+want https://www.revolve.com/commando-faux-patent-leather-legging-in-mauve/dp/CMAN-WP125/ but havent decided on the color, they have white (maybe), black (works with everything) but pink also looks fun
