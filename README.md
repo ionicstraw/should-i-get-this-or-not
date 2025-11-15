@@ -15,3 +15,5 @@ the tights came in the mail today, okk def overpriced haha as expected but i lik
 want https://www.revolve.com/commando-faux-patent-leather-legging-in-mauve/dp/CMAN-WP125/ but havent decided on the color, they have white (maybe), black (works with everything) but pink also looks fun. got them in black yesterday, ill play around with all of these things during/after thanksgiving. i work hard and then i play hard, right now, i have to work hard.
 
 im super busy this weekend and this whole week with my app, i havent tried those tights on yet but i got a dress to match them for thanksgiving 😬
+
+i got this the other day but it wont be delivered for another week https://www.revolve.com/loveshackfancy-natasha-dress-in-black/dp/LESH-WD133/ this with the isabel marant tights in black is the general goal ... all black but gold gianvito rossi gold heels that i have already, thats the plan but im busy i really dont want to get distracted by anything
