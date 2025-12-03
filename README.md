@@ -22,3 +22,5 @@ i got this the other day but it wont be delivered for another week https://www.r
 i got this 2 yrs ago?? https://www.revolve.com/dyson-airwrap-multistyler-complete-long-in-nickel-copper/dp/DYSR-WU6/ ONLY USED IT ONCE bc its kind of complicated, theres all these different parts, im going to pull it out and figure it out after im done and for thanksgiving. i have the other two things by dyson tho, the hairdryer i got in bethesda and then the airstraight i use most of the time but my hair straightner makes my hair shiny tho which that thing doesnt do anyway i was having a conversation about dyson with my brother, he said that he's well respected in the engineering world, makes good stuff imo, i dunno why i havent figured out that airwrap thing its just sitting around
 
 https://www.jenniferbehr.com/products/kason-headband-black-gold?variant=Black%20Gold& got this, its so pretty, omggg and its a little heavy, maybe a mob-wife vibe or like with a pretty dress
+
+i got this the other day https://www.revolve.com/fazit-beauty-wing-eyes-in-golden/dp/FBEA-WU9/ want to try this, it transfers from the paper to your eyelids, looks interesting 😬
