@@ -24,3 +24,8 @@ i got this 2 yrs ago?? https://www.revolve.com/dyson-airwrap-multistyler-complet
 https://www.jenniferbehr.com/products/kason-headband-black-gold?variant=Black%20Gold& got this, its so pretty, omggg and its a little heavy, maybe a mob-wife vibe or like with a pretty dress
 
 i got this the other day https://www.revolve.com/fazit-beauty-wing-eyes-in-golden/dp/FBEA-WU9/ want to try this, it transfers from the paper to your eyelids, looks interesting 😬
+
+https://www.gianvitorossi.com/us_en/woman/shoes/sandals/bijoux/G61635.15RIC.NAPNERO.html these im going to get in black, but i want to try them on first, theyre really popular so theyre not in stock esp not at the short hills mall @ neiman:
+
+* "Gianvito Rossi Bijoux heels, particularly the SS21 sandals, are praised for their stunning, unique design, versatility with evening wear, and surprisingly good comfort for a high heel, thanks to substantial straps. However, while generally considered a comfortable brand, some users experience issues like the sole's sock peeling, raising quality concerns for the price, though the distinct look and feel often outweigh these potential construction flaws for fans."
+* if theyre comfy ill get them in gold as well lololl
