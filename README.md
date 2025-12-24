@@ -32,3 +32,5 @@ https://www.gianvitorossi.com/us_en/woman/shoes/sandals/bijoux/G61635.15RIC.NAPN
 
 * https://www.revolve.com/fleur-du-mal-silk-and-lace-scallop-midi-skirt-in-black/dp/FLER-WQ42/ i want to get this black silk skirt, like i need it lol BUT its made in china so why is it so overpriced, i dont get it
 * i want to get a fun pastel pink dress to offset this lame winter
+
+im going to get this https://leletny.com/products/liv-headband bc i remembered i wanted this a couple of yrs ago then i forgot, where r they located in nyc i wanna see it in person
