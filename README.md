@@ -34,3 +34,5 @@ https://www.gianvitorossi.com/us_en/woman/shoes/sandals/bijoux/G61635.15RIC.NAPN
 * i want to get a fun pastel pink dress to offset this lame winter
 
 im going to get this https://leletny.com/products/liv-headband bc i remembered i wanted this a couple of yrs ago then i forgot, where r they located in nyc i wanna see it in person
+* omg they have appts available https://leletny.com/pages/showroom-appointments -> personal styling, that could be fun actually, maybe in jan/feb
+* i need a headband in like a dark red and also a green, like an olive-y/moss-y green https://www.jenniferbehr.com/collections/headbands/products/natasha-headband-olive and/or https://www.saksfifthavenue.com/product/lelet-ny-heloise-velvet-padded-headband-0400001519565.html one or both i will get
