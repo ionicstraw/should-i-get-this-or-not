@@ -38,3 +38,5 @@ im going to get this https://leletny.com/products/liv-headband bc i remembered i
 * i need a headband in like a dark red and also a green, like an olive-y/moss-y green https://www.jenniferbehr.com/collections/headbands/products/natasha-headband-olive and/or https://www.saksfifthavenue.com/product/lelet-ny-heloise-velvet-padded-headband-0400001519565.html one or both i will get
 
 https://www.freepeople.com/shop/loveshackfancy-ilene-satin-lace-maxi-skirt/ i got this in pink 😇
+
+https://www.jenniferbehr.com/collections/sale/products/stefanya-headband-golden i got this, it looks like it was made in pakistan or india, but they hand make them in nyc, totally my thing
