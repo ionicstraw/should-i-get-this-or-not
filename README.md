@@ -45,4 +45,5 @@ https://www.mansurgavriel.com/products/maxi-everyday-cabas-black this im getting
 
 deciding between https://us.isabelmarant.com/products/bk0013fac3e08sleec-beth-sneakers-leopard-ecru vs https://us.isabelmarant.com/products/bk0013faa1e21s20wh-beth-sneakers-white leaning towards white but the leopard ones look fun lol im a very high heel person but sometimes i need white sneakers, theres a look where u wear a sweatshirt with a nice skirt, then white sneakers i want to do that in the spring
 * https://www.mytheresa.com/media/1094/1238/100/94/P01070710_d2.jpg i think the leopard stands out too much, white would be cleaner
+* i dont want to choose, i want to get both lol, what if i do, i have savings, i can do that. grab coffee in leopard print sneakers and then the next day go to the mall in white sneakers u know
 
